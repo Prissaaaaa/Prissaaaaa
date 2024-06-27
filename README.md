@@ -2,7 +2,7 @@
 - 👀 I’m interested about coding, programming, photography, illustration and fashion design
 - 🌱 I’m currently learning coding, editing photo and illustration
 - 💞️ I’m looking to collaborate on design, editing photo, and illustration
-- 📫 How to reach me ...
+- 📫 How to reach me? DM on Instagram @itsmeprissa
 
 <!---
 Prissaaaaa/Prissaaaaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
